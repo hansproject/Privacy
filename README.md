@@ -1,0 +1,2 @@
+# Privacy
+Apps Privacy Policy
